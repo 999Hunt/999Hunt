@@ -6,7 +6,7 @@ Join the Discord for support: https://discord.gg/lunaz
 
 if you get banned this is not my issue, as these are against Blooket's TOS
 
--lol-jude
+-999Hunt
 
 # HOW TO USE:
 
